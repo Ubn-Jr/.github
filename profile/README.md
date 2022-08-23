@@ -6,6 +6,6 @@ Ubn-Jr be not junior..
   - 📫 info@ubnjr.com
   - 👉 https://t.me/UbnJr
   - 👉 www.ubnjr.com
-  - 👉 https://www.youtube.com/channel/UC-uk9RPPrWIDYrueP4VwkaA
+  - 👉 https://www.youtube.com/c/UbnJr
   
 - 💬 if there's anything you need don't hesitate to ask
